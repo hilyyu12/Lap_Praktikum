@@ -1,0 +1,8 @@
+[alt text!](https://github.com/hilyyu12/Lap_Praktikum/blob/master/Screenshot%20(128).png)
+[alt text!](https://github.com/hilyyu12/Lap_Praktikum/blob/master/Screenshot%20(129).png)
+[alt text!](https://github.com/hilyyu12/Lap_Praktikum/blob/master/Screenshot%20(130).png)
+[alt text!](https://github.com/hilyyu12/Lap_Praktikum/blob/master/Screenshot%20(131).png)
+[alt text!](https://github.com/hilyyu12/Lap_Praktikum/blob/master/Screenshot%20(132).png)
+[alt text!](https://github.com/hilyyu12/Lap_Praktikum/blob/master/Screenshot%20(133).png)
+[alt text!](https://github.com/hilyyu12/Lap_Praktikum/blob/master/Screenshot%20(134).png)
+[alt text!](https://github.com/hilyyu12/Lap_Praktikum/blob/master/Screenshot%20(135).png)
